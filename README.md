@@ -13,7 +13,7 @@ I believe in the magic of technology, the power of creativity, and the importanc
 ## 🛡️ Roles and Experience
 - 🎯 **Social Media Lead** — *Google Developer Groups MITS*
 - 🧩 **Former HR** — *IEDC MITS*
-- 🌟 **District Priority Chair** — *Leading district-level initiatives*
+- 🌟 **District Priority Chair** — *Leading district-level initiatives at rotaract MITS*
 - 🏛️ **Parliamentarian** — *School Leadership Roles*
 
 ---
